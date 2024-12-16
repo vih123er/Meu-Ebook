@@ -1,0 +1,1 @@
+Criei um Ebook através da IA, utilizando a ajuda do criador de imagens IA e ChaGPT, citei a importância da fisioerapia para o mundo atual e como ela ajuda as pessoas a se recuperarem e votarem a ter esperança. 
